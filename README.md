@@ -1,1 +1,1 @@
-# General
+With an addiction to solving problems in all areas of my life and an intense interest in robotic technology, I have committed 6 years of project experience in designing and implementing advanced robotic systems. I aspire to be not just a capable engineer who contributes to the world meaningfully but also a great man people can look up to. I spend each day continuously improving my career, health, fitness and relationships. I am only at the start of my journey, a journey which excites me immensely and ignites a fire of ambition within me.
